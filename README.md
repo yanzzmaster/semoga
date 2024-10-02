@@ -1,2 +1,2 @@
-# semoga
+# jujur 
 berkah
